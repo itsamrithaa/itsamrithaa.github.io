@@ -1,1 +1,0 @@
-Amrithaa's personal portfolio
